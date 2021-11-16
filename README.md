@@ -1,4 +1,4 @@
-### Hi there 👋
+### WHILE I'M NOT POSTING HERE, I'M PROBABLY STUDYING SOMETHING
 
 Ayo
 
